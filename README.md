@@ -1,0 +1,2 @@
+# suniy-ong
+Suniy intellekt
